@@ -6,3 +6,4 @@
 ## [Top Latino](https://megawypas.com/readarticle.php?article_id=478)
 ## [Stars TV](https://pilot.wp.pl/tv/#stars-tv-hd)
 ## [MTV 80s](http://vsetv.cc/vh1classic)
+## [MTV 00s](http://vsetv.cc/vh1)
